@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ryan Maxwell
-- 👀 I’m a champion of Customer Experience and advocate for sustainable living
+- 👀 I’m a champion of Digital Customer Experience and advocate for sustainable living
 - 🌱 I’m currently living in Dubai, UAE
 - 💞️ I’m looking to collaborate with like minded people who want to make the world a better place
 - 📫 You can reach me on LinkedIn 
